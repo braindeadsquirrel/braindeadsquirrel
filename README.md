@@ -1,0 +1,4 @@
+-  sup, im @braindeadsquirrel
+-  i like playing games B)
+-  pronouns: he/him
+-  fun fact: i got bit by a monkey once
